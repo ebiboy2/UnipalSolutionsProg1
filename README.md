@@ -1,1 +1,0 @@
-# UnipalSolutionsProg1
